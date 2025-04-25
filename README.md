@@ -24,7 +24,7 @@
 
 ° [Atividade 11](https://phamelajulia.github.io/atividade-11/)
 
-° [Atividade 12]
+° [Atividade 12](https://phamelajulia.github.io/atividade12/)
 
 ° [Atividade 13]
 
