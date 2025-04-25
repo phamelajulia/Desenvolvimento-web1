@@ -18,7 +18,7 @@
 
 ° [Atividade 08]( https://phamelajulia.github.io/atividade-08/)
 
-° [Atividade 09](https://phamelajulia.github.io/atividade-10/)
+° [Atividade 09](https://phamelajulia.github.io/atividade-09/)
 
 ° [Atividade 10](https://phamelajulia.github.io/atividade-10/)
 
