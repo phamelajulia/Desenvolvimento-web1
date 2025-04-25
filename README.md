@@ -9,3 +9,25 @@
 ° [Atividade 03](https://phamelajulia.github.io/atividade-03/)
 
 ° [Atividade 04](https://phamelajulia.github.io/atividade-04/)
+
+° [Atividade 05]( https://phamelajulia.github.io/atividade-05/)
+
+° [Atividade 06]
+
+° [Atividade 07]
+
+° [Atividade 08]
+
+° [Atividade 09]
+
+° [Atividade 10]
+
+° [Atividade 11]
+
+° [Atividade 12]
+
+° [Atividade 13]
+
+° [Atividade 14]
+
+° [Atividade 04]
